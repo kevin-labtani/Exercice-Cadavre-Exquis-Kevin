@@ -12,3 +12,6 @@ Insistant jusqu’à en perdre quelques griffes, rien n'y fait les liens sont be
 > enfui toi !  et laisse moi.
 
 dit **Margarete Bernauer**  d'un ton désespérée, soudain ! un bruit lourd retentit a l’extérieur de la petite pièce.
+Abasourdie, Margarete Bernauer vit la porte exploser, Lily se refugia derrière sa fidèle maitresse, le dos rond et la gueule feulante.
+Et oui, effectivement, elle l'avait completement oublié mais c'était jour de sabbat!
+Devinez qui vint la libéré? Et bien oui, le Diable en personne, il se chargea aussi des habitants du village, qui laissairent,, pour le restant de leurs jours, Margarete Bernauer et sa Lily vivrent comme elles l'entendaient.
